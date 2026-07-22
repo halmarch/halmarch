@@ -6,7 +6,7 @@
 <img width="1200" height="62" alt="ebaf9ae1160b45fae6b65cea9c28124d" src="https://github.com/user-attachments/assets/4bcfe80d-a0ec-4598-9406-1060db5cbefa" />
 
 ### <p align="center"><code style="color : lightgrey">***THIS ISN't ABOUT THE PAST . . . WE'RE FIGHTING FOR THE FUTURE.***</code></p>
-#### <p align="center"><code style="color : lightgrey"><ins> *male* </ins>			*POC*			:		<ins> *venom 	snake	</ins> 		♡*</code></p>
+#### <p align="center"><code style="color : lightgrey"><ins> *male* </ins>			*POC*			:		<ins> *driver</ins> 		♡*</code></p>
 <br> <br>
 <p align="center"><img width="99" height="56" alt="tumblr_dcff0f7ba5097e7c9e5288daaaa8558f_f87c80b4_100" src="https://github.com/user-attachments/assets/e43e4827-33dc-4390-b564-fc29d695d570" /></p>
 
