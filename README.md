@@ -3,7 +3,7 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Palatino+Linotype&size=17&duration=2000&pause=999&color=F75A1F&background=FFEEB400&center=true&vCenter=true&width=435&lines=do+you+remember+%3F;the+twenty-first+night+of+september+%3F;love+was+changin'+the+mind+of+pretenders;while+chasin'+the+clouds+away" alt="Typing SVG" /></a>
 
-　　  ![](https://komarev.com/ghpvc/?username=halmarch&color=orange&style=plastic&label=(¬`‸´¬)")　　  ***ᵎᵎ***
+　　  ![](https://komarev.com/ghpvc/?username=halmarch&color=yellow&style=plastic&label=(¬`‸´¬)")　　  ***ᵎᵎ***
 
  <sub><a href="https://treatgalore.straw.page/" target="_blank">strawpage</a>　　　　<a href="https://guns.lol/haliosis" target="_blank">guns</a>　　　　<a href="https://halmarched.atabook.org/" target="_blank">ata</a></sub>
 
