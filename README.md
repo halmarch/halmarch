@@ -6,8 +6,8 @@
 　　  ![](https://komarev.com/ghpvc/?username=halmarch&color=yellow&style=plastic&label=(¬`‸´¬)")　　    $\color{#f7af3b}{\textsf{ᵎᵎ}}$
 
  <sub><a href="https://treatgalore.straw.page/" target="_blank">strawpage</a>　　　　<a href="https://guns.lol/haliosis" target="_blank">guns</a>　　　　<a href="https://halmarched.atabook.org/" target="_blank">ata</a></sub>
-
 <br> <br>
+
 <img width="483" height="370" alt="Untitled233_20260808064531" src="https://github.com/user-attachments/assets/492bc6b6-d86a-424f-ae39-3475c0b52721" />
 
 
@@ -20,6 +20,8 @@ $\color{#f7af3b}{\textsf{𓎢𓎠𓎟𓎠𓎡}}$　　 <img width="21" height="2
 ‎ $\small\color{#ff7429}{\textsf{𝓗OLLAND　𝓜ARCH　ꪗUME　+　ᛕIN}}$　　 $\color{#f7af3b}{\textsf{♡}}$ 　　 $\small\color{#b84018}{\textsf{𝟣𝟩}}$ ㅤㅤ 　 $\color{#f7af3b}{\textsf{𓈒  ̣̣ ۟　𓈒}}$
 <br> <br>
 <img width="99" height="56" alt="tumblr_c869b5e521fe404a886db2b513b1cb02_adddf519_100" src="https://github.com/user-attachments/assets/f70f21ca-f96d-4609-8c8d-f2af700c7c48" />
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fifmxhw35mjoyzt3em7cq2ze3y&cover_image=true&theme=novatorem&show_offline=true&background_color=f7ae39&interchange=false&profanity=false&hide_remaster=false&bar_color=f7ae39&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <br>
 
