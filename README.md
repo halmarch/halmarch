@@ -5,7 +5,7 @@
 
 　　  ![](https://komarev.com/ghpvc/?username=halmarch&color=yellow&style=plastic&label=(¬`‸´¬)")　　    $\color{#f7af3b}{\textsf{ᵎᵎ}}$
 
- <sub><a href="https://treatgalore.straw.page/" target="_blank">strawpage</a>　　　　<a href="https://guns.lol/haliosis" target="_blank">guns</a>　　　　<a href="https://halmarched.atabook.org/" target="_blank">ata</a></sub>
+ <sub><a href="https://treatgalore.straw.page/" target="_blank">strawpage</a>　　　　<a href="https://guns.lol/haliosis" target="_blank">guns</a>　　　　<a href="https://halmarched.atabook.org/" target="_blank">ata</a>　　　　<a href="https://rentry.co/only-god-forgives" target="_blank">rentry</a>　　　　</sub>
 <br> <br>
 
 <img width="483" height="370" alt="Untitled233_20260808064531" src="https://github.com/user-attachments/assets/492bc6b6-d86a-424f-ae39-3475c0b52721" />
